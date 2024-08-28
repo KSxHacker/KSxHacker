@@ -2,7 +2,7 @@
 - 👀 I’m interested in DEVELOPMENT as well as CYBER SECURITY
 - 🌱 I’m currently learning Cybernetics
 - 💞️ I’m looking to collaborate with peers on projects.
-- 📫 How to reach me-ks.kaushiki.sharma@gmail.com
+- 📫 How to reach me- ks.kaushiki.sharma@gmail.com
 - 😄 Pronouns: ...SHE/HER
 
 
